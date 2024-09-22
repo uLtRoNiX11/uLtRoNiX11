@@ -5,7 +5,7 @@
 - 📫 How to reach me -> jhishnu.dev@gmail.com (Email), ultronix_11 (Discord).
 - 😄 Pronouns: I'm Normal :|
 - ⚡ Fun fact: I'm currently 14 at the time of the creation of this account.
--  [PS -> I use arch btw]
+- 👾 [PS -> I use arch btw]
   
 
 <!---
