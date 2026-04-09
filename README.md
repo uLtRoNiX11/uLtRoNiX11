@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @uLtRoNiX11
-- 🌱 I’m currently learning Rust
+- 🌱 I’m currently pursuing Cisco's Certification for Cybersecurity
 - 📫 How to reach me -> jhishnu.dev@gmail.com (Email), ultronix_11 (Discord).
 - 😄 Pronouns: He/Him
