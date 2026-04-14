@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @uLtRoNiX11
-- 🌱 I’m currently pursuing Cisco's Certification for Cybersecurity
+- 🌱 I’m currently working on a BIG passion project (will be made public soon.)
 - 📫 How to reach me -> jhishnu.dev@gmail.com (Email), ultronix_11 (Discord).
 - 😄 Pronouns: He/Him
